@@ -1,4 +1,4 @@
-
+Get ahead in bee swarm simulator with bee swarm simulator best Script, featuring auto-upgrade and one-hit kill. Download now to dominate every match with ease and confidence,
 
 
 
